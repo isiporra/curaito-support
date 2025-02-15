@@ -40,7 +40,6 @@ Nuestro equipo revisará tu mensaje y te rsponderá lo antes posible. ¡Gracias 
   [https://isiporra.github.io/privacy-policy/](https://isiporra.github.io/privacy-policy/)  
 - **Instagram (ejemplo):**  
   [@Curaito.cl](https://instagram.com/Curaito.cl)  
-  *(Cámbialo si tienes otra cuenta o redes sociales)*
 
 Si deseas más detalles o tienes alguna sugerencia, no dudes en escribirnos. Estamos para ayudarte.
 
