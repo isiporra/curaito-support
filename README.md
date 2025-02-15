@@ -11,7 +11,7 @@ Si tienes dudas, problemas o sugerencias sobre Curaito, puedes escribirnos a nue
 
 **[isidora.olivera@gmail.com](mailto:isidora.olivera@gmail.com)**
 
-Nuestro equipo revisará tu mensaje y te responderá lo antes posible. ¡Gracias por confiar en Curaito!
+Nuestro equipo revisará tu mensaje y te rsponderá lo antes posible. ¡Gracias por confiar en Curaito!
 
 ---
 
