@@ -39,7 +39,7 @@ Nuestro equipo revisará tu mensaje y te rsponderá lo antes posible. ¡Gracias 
 - **Política de Privacidad:**  
   [https://isiporra.github.io/privacy-policy/](https://isiporra.github.io/privacy-policy/)  
 - **Instagram (ejemplo):**  
-  [@CuraitoOficial](https://instagram.com/CuraitoOficial)  
+  [@CuraitoOficial](https://instagram.com/Curaito.cl)  
   *(Cámbialo si tienes otra cuenta o redes sociales)*
 
 Si deseas más detalles o tienes alguna sugerencia, no dudes en escribirnos. Estamos para ayudarte.
